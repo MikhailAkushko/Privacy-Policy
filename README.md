@@ -1,5 +1,7 @@
 
-Mikhail A built the Leaves: Бесплатная игра-головоломка app as a Free app. This SERVICE is provided by Mikhail A at no cost and is intended for use as is.
+Mikhail A built the Leaves: Бесплатная игра-головоломка,Survival "Plinth Monsters",Сад своими руками,Карта Северного Кипра
+app as a Free app. 
+This SERVICE is provided by Mikhail A at no cost and is intended for use as is.
 
 This page is used to inform visitors regarding my policies with the collection, use, and disclosure of Personal Information if anyone decided to use my Service.
 
